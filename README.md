@@ -17,6 +17,6 @@ That's it! Best of luck on the rest of your assignments!
 1. Alan López García:
 * https://www.linkedin.com/in/alan-lopezgarcia/
 * Message: Hope this is at least not your ~worst~ training process ;D
-2. You
-* A contact
-* Message: A message...
+2. Manuel Cabassa
+* https://www.linkedin.com/in/manuel-cabassa-3072ba177/
+* Message: I want to learn a lot!!!
