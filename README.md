@@ -17,6 +17,6 @@ That's it! Best of luck on the rest of your assignments!
 1. Alan López García:
 * https://www.linkedin.com/in/alan-lopezgarcia/
 * Message: Hope this is at least not your ~worst~ training process ;D
-2. You
-* A contact
-* Message: A message...
+2. Kelvin Figueroa
+* https://www.linkedin.com/in/kelvin-figueroa-b39a15187/
+* Message: "Do or do not. There is no try".
