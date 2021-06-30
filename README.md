@@ -18,5 +18,5 @@ That's it! Best of luck on the rest of your assignments!
 * https://www.linkedin.com/in/alan-lopezgarcia/
 * Message: Hope this is at least not your ~worst~ training process ;D
 2. You
-* A contact
-* Message: A message...
+* A contact Ixan
+* Message: A message... Jejeje un mensaje
