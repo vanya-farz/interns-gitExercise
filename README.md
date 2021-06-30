@@ -20,3 +20,6 @@ That's it! Best of luck on the rest of your assignments!
 2. Manuel Cabassa
 * https://www.linkedin.com/in/manuel-cabassa-3072ba177/
 * Message: I want to learn a lot!!!
+3. Kelvin Figueroa
+* https://www.linkedin.com/in/kelvin-figueroa-b39a15187/
+* Message: "Do or do not. There is no try".
