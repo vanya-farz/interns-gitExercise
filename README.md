@@ -23,3 +23,6 @@ That's it! Best of luck on the rest of your assignments!
 3. Kelvin Figueroa
 * https://www.linkedin.com/in/kelvin-figueroa-b39a15187/
 * Message: "Do or do not. There is no try".
+4. Ixan Melendez
+* https://www.linkedin.com/in/ixan-melendez-65604717b/
+* Message: "Ultimo, ultimo, ultimo".
