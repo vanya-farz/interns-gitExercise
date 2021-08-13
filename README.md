@@ -26,3 +26,6 @@ That's it! Best of luck on the rest of your assignments!
 4. Ixan Melendez
 * https://www.linkedin.com/in/ixan-melendez-65604717b/
 * Message: "Ultimo, ultimo, ultimo".
+5. Vanya Farzamipour
+* https://www.linkedin.com/in/vanya-farzamipour-573b851b9
+* Message: "You're a wizard, Harry."
